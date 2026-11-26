@@ -7,3 +7,4 @@ I’m a recent university graduate and new to GitHub. I’m interested in artifi
 ## 联系方式 / Contact
 
 - 谷歌邮箱 / Gmail — <ruiy2087@gmail.com>
+- QQ 邮箱 / QQ Mail — <914958226@qq.com>
